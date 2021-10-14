@@ -1,3 +1,3 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Dwi Latifah Rianti**.\
+Perkenalkan nama saya **Dwi Latifah Rianti**.
